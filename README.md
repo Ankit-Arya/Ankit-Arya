@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **dataprofessionalankit@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1slkLOAFmbd55pGuNZrXdzZXE_WuZOR6V/view?usp=drive_link]([https://drive.google.com/file/d/1vJnpRVWL57WuYR0YkZI87Mqa0uIylnEu/view?usp=drive_link])
+- 📄 Know about my experiences [https://drive.google.com/file/d/1slkLOAFmbd55pGuNZrXdzZXE_WuZOR6V/view?usp=drive_link](https://drive.google.com/file/d/1vJnpRVWL57WuYR0YkZI87Mqa0uIylnEu/view?usp=drive_link)
 
 - ⚡ Fun fact **I'm anime and animal lover**
 
